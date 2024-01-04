@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on becoming a top web developer.<br>🤝 I’m looking for help with landing a job.<br>🌱 I’m currently repeating basics.<br>💬 Ask me about anything... <br>⚡ Fun fact - In my first job, I was an equestrian trainer for children.
+🔭 I’m currently working on becoming a top web developer.<br>🌱 I’m currently repeating basics.<br>💬 Ask me about anything... <br>⚡ Fun fact - In my first job, I was an equestrian trainer for children.
 
 
 ## 🌐 Socials:
